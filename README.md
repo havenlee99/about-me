@@ -10,4 +10,5 @@ dislikes: TROLLS, transphobes, racists, ableists, sexists, HOMOPHOBES, uncomfy/t
 .・。.・゜✭・.・✫・゜・。.
 interation: cuddles/hugs are fine, but please don't be creepy. I act silly sometimes, but I am not making any type of advances, and I do not have ill-intentions for anyone.
 .・。.・゜✭・.・✫・゜・。.
+
 <img width="200" height="75" alt="image" src="https://github.com/user-attachments/assets/d6fd9f0e-c0c8-47a3-8466-c7e94f5341e7" /> <img width="200" height="75" alt="image" src="https://github.com/user-attachments/assets/5e224f0a-9e57-4998-9802-3f7037e5fff4" /> <img width="200" height="75" alt="image" src="https://github.com/user-attachments/assets/b9cd050a-642b-4679-a9b3-ff2c4021a990" />
