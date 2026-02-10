@@ -1,5 +1,5 @@
 # about-me
-guys can we all just interlock toes and be friends❤️
+>guys can we all just interlock toes and be friends❤️
 .・。.・゜✭・.・✫・゜・。.
 howdy, my name is haven! i'm otherwise known as "shart" or some other silly pony
 I am 26 years old (MINORS DNI) and I am looking for my community <3 I'm fairly active and I am in the EST time-zone. I have two pets (my dog Tigger and my cat Glinda, who I have skins of) and I am hoping to go back to school for social work and specialize in assisting immigrants. No human is illegal.
